@@ -58,7 +58,8 @@ Terms and deadlines are discussed individually for each task.
 ### 📫 Contact
 
 - Discord: `midweekimpala24`
-- Telegram: `@midweek24`
+- Telegram: [@midweek24](https://t.me/midweek24)
+- Languages: Russian, Latvian, English
 
 [⬆ Back to top](#top) · [Русский](#ru)
 
@@ -108,7 +109,8 @@ Terms and deadlines are discussed individually for each task.
 ### 📫 Связаться
 
 - Discord: `midweekimpala24`
-- Telegram: `@midweek24`
+- Telegram: [@midweek24](https://t.me/midweek24)
+- Языки общения: русский, латышский, английский
 
 [⬆ Наверх](#top) · [English](#en)
 
